@@ -1,0 +1,2 @@
+# General
+Ideas and resources
